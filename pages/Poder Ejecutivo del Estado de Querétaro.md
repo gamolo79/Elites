@@ -1,9 +1,9 @@
-- #[[Sexenio 1985-1991]] encabezado por #[[Mariano Palacios Alcocer]]
-- #Sexenio1991-1997 encabezado por #[[Enrique Burgos García]]
-- #Sexenio1997-2003 encabezado por #[[Ignacio Loyola Vera]]
-- #[[Sexenio 2003-2009]] encabezado por #[[Francisco Garrido Patrón]]
-- #[[Sexenio 2009-2015]] encabezado por #[[José Eduardo Calzada Rovirosa]]
-- #[[Sexenio 2015-2021]] encabezado por #[[Francisco Domínguez Servién]]
-- #[[Sexenio 2021-2027]] encabezado por #[[Mauricio Kuri González]]
--
--
+- [[Sexenio 1973-1979]] encabezado por [[Antonio Calzada Urquiza]]
+- [[Sexenio 1979-1985]] encabezado por [[Rafael Camacho Guzmán]]
+- [[Sexenio 1985-1991]] encabezado por [[Mariano Palacios Alcocer]]
+- Sexenio1991-1997 encabezado por [[Enrique Burgos García]]
+- Sexenio1997-2003 encabezado por [[Ignacio Loyola Vera]]
+- [[Sexenio 2003-2009]] encabezado por [[Francisco Garrido Patrón]]
+- [[Sexenio 2009-2015]] encabezado por [[José Eduardo Calzada Rovirosa]]
+- [[Sexenio 2015-2021]] encabezado por [[Francisco Domínguez Servién]]
+- [[Sexenio 2021-2027]] encabezado por [[Mauricio Kuri González]]

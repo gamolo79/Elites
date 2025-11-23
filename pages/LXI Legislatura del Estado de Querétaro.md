@@ -1,0 +1,6 @@
+- [[Paul Ospital Carrera]] diputado plurinominal del [[PRI]] que cambió a [[Movimiento Ciudadano]]
+- [[Teresita Calzada Rovirosa]] - Diputada por [[Movimiento Ciudadano]]
+- [[Arturo Maximiliano García Pérez]] - Diputado de [[MORENA]]
+- [[Sinuhé Piedragil Ortiz]] - Diputado de [[MORENA]]
+- [[Andrea Tovar Saavedra]] - Diputada de [[MORENA]]
+-

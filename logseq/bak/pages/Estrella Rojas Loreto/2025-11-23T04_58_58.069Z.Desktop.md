@@ -1,0 +1,2 @@
+- Senadora, suplente de #[[Guadalupe Murguía Gutiérrez]]
+- Casada con #[[José Luis Báez Guerrero]]

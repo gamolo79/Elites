@@ -1,2 +1,4 @@
-- Secretario de Desarrollo Social y Humano en los dos periodos de #[[Luis Bernardo Nava Guerrero]] como presidente Municipal de Querétaro 2018-2021 y 2021-2024.
+- Secretario de Desarrollo Social y Humano en los dos periodos de [[Luis Bernardo Nava Guerrero]] como presidente Municipal de Querétaro en el [[Ayuntamiento de Querétaro 2018-2021]] y el [[Ayuntamiento de Corregidora 2021-2024]]
+- Candidato a diputado local del [[PAN]] en 2018, perdió frente a [[Arturo Maximiliano García Pérez]]
+- Subsecretario de Salud en el [[Sexenio 2021-2027]] con [[Mauricio Kuri González]]
 -

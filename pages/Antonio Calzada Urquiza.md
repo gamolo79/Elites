@@ -1,0 +1,4 @@
+- Padre de [[José Eduardo Calzada Rovirosa]]
+- Padre de [[Teresita Calzada Rovirosa]]
+- Titular del [[Poder Ejecutivo del Estado de Querétaro]] el [[Sexenio 1973-1979]]
+-

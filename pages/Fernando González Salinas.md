@@ -1,0 +1,4 @@
+- Secretario de Obras Públicas con [[Mauricio Kuri González]], en el [[Sexenio 2021-2027]].
+- Fue relevado por [[José Pío X Salgado Tovar]]
+-
+-

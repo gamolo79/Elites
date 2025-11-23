@@ -1,5 +1,5 @@
 - Diputada Federal por el Distrito I
-- Cuñada de #[[Arturo Torres Gutiérrez]]
-- Senadora, suplente de #[[Francisco Domínguez Servién]]
-- Diputada local en la LVI Legislatura de Querétaro
--
+- Cuñada de [[Arturo Torres Gutiérrez]]
+- Senadora, suplente de [[Francisco Domínguez Servién]]
+- Diputada local en la [[LVI Legislatura del Estado de Querétaro]]
+- Secretaria de la Mujer con [[Mauricio Kuri González]] en el [[Sexenio 2021-2027]]

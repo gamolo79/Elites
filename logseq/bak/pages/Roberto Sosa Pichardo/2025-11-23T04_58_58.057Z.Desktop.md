@@ -1,0 +1,5 @@
+- Secretario de Desarrollo Social del municipio de Corregidora con #[[Mauricio Kuri González]]
+- Presidente Municipal de Corregidora en dos trienios: 2018-2021 y 2021-2024.
+- Tomó posesión como presidente Municipal de Corregidora el  2018-10-01
+-
+-

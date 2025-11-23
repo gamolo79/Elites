@@ -1,3 +1,4 @@
 - Diputada en la [[LX Legislatura del Estado de Querétaro]]
 - Diputada en la [[LIX Legislatura del Estado de Querétaro]]
+- Secretaria de cultura con [[Felipe Fernando Macías Olvera]] en el [[Ayuntamiento de Querétaro 2024-2027]]
 -

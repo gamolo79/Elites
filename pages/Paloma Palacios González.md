@@ -1,3 +1,3 @@
-- Paloma Palacios González fue nombrada por #[[Mauricio Kuri González]] como representante del gobierno de Querétaro en la Ciudad de México.
+- Paloma Palacios González fue nombrada por [[Mauricio Kuri González]] como representante del [[Poder Ejecutivo del Estado de Querétaro]]  la Ciudad de México durante el [[Sexenio 2021-2027]]
 - Es hija de [[Mariano Palacios Alcocer]] y [[Ana María González]]
 -
