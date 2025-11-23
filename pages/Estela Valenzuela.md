@@ -1,3 +1,3 @@
-- Trabajó como coordinadora de Comunicación Social en el trienio de #[[Marcos Aguilar Vega]] como presidente municipal del #[[Ayuntamiento de Querétaro 2015-2018]]
+- Trabajó como coordinadora de Comunicación Social en el trienio de #[[Marcos Aguilar Vega]] como presidente municipal del [[Ayuntamiento de Querétaro 2015-2018]]
 - Coordinadora de Comunicación Social de [[Arturo Maximiliano García Pérez]] en la [[LXI Legislatura del Estado de Querétaro]]
 -

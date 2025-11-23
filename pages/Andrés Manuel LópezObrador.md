@@ -1,2 +1,6 @@
-- Presidente de México 2018-2024.
+- Presidente de México en el 2018-2024.
+- Fundador de [[MORENA]]
+- Candidato presidencial del [[PRD]] en 2006
+- Candidato presidencial del [[PRD]] en 2012
+- Jefe de Gobierno del [[Distrito Federal]] de 2000 a 2005
 -

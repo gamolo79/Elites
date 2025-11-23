@@ -1,0 +1,6 @@
+- Síndico en el #[[Ayuntamiento de Querétaro 2015-2018]]
+- Presidente municipal interino en el #[[Ayuntamiento de Querétaro 2015-2018]]
+- Secretario de Servicios Públicos Municipales en #[[Ayuntamiento de Querétaro 2018-2021]]
+- Presidente del Comité Directivo Municipal del PAN
+- Diputado Local en la #[[LVII Legislatura del Estado de Querétaro]] y en la #[[LX Legislatura del Estado de Querétaro]]
+-

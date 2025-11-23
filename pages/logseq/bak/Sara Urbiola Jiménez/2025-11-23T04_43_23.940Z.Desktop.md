@@ -1,0 +1,5 @@
+- Es directora del Instituto Municipal de la Juventud #[[Ayuntamiento de Querétaro 2021-2024]]
+- Es hija de #[[Fernando Urbiola Ledesma]]
+- Contrajo Nupcias con #[[Fernando Guerrero Mendoza]] el sábado #11-11-2023
+-
+-

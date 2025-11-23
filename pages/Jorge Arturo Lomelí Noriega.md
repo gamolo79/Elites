@@ -1,3 +1,3 @@
-- Candidato a la Presidencia Municipal de El Marqués en los años 2000, 2009, 2018 y 2024.
-- Diputado local #[[LVII Legislatura del Estado de Querétaro]]
-- Casado con #[[Estela Ayala]]
+- Candidato a la Presidencia Municipal de El Marqués en los años 2000, 2009 (por el [[PAN]] ), 2018 y 2024 (por [[MORENA]] ).
+- Diputado local del [[PAN]] [[LVII Legislatura del Estado de Querétaro]]
+- Casado con [[Estela Ayala]]

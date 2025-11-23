@@ -1,1 +1,4 @@
 - Suplente de [[Ricardo Anaya Cortés]] en la [[LXII Legislatura Federal]]
+- Diputada local del [[PAN]] en la [[LX Legislatura del Estado de Querétaro]]
+-
+-

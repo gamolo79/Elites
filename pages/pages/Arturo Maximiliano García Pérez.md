@@ -1,4 +1,5 @@
 - Secretario del Ayuntamiento en el [[Ayuntamiento de Querétaro 2000-2003]]
-- Diputado local por el PAN
-- Diputado local por MORENA en la [[LXI Legislatura del Estado de Querétaro]]
+- Diputado local por el [[PAN]]
+- Diputado local por [[MORENA]] en la [[LXI Legislatura del Estado de Querétaro]]
+-
 -

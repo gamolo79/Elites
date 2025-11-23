@@ -1,0 +1,5 @@
+- Coordinador de #COPLADEM y Subsecretario de Desarrollo Social con #[[Arturo Torres Gutiérrez]] en el #[[Ayuntamiento de Querétaro 2021-2024]]
+- Delegado en Cayetano Rubio durante el #[[Ayuntamiento de Querétaro 2018-2021]]
+- Delegado en Josefa Vergara y Hernández en el [[Ayuntamiento de Querétaro 2024-2027]]
+- Hijo de [[Simón Guerrero Contreras]]
+-

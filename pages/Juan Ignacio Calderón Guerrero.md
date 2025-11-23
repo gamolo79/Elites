@@ -1,2 +1,2 @@
-- Coordinador del #COPLADEM en el periodo de #[[Beatriz Guadalupe Marmolejo Rojas]] como secretaria de Desarrollo Social Municipal, en el #[[Ayuntamiento de Querétaro 2015-2018]]
+- Coordinador del #COPLADEM en el periodo de [[Beatriz Guadalupe Marmolejo Rojas]] como secretaria de Desarrollo Social Municipal, en el #[[Ayuntamiento de Querétaro 2015-2018]]
 -

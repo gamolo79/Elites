@@ -1,0 +1,2 @@
+- Movimiento de Regeneración Nacional, partido político fundado por [[Andrés Manuel LópezObrador]]
+-
