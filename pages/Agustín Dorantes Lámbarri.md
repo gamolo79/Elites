@@ -1,3 +1,3 @@
-- Secretario de Desarrollo Social con #[[Francisco Domínguez Servién]]
-- Secretario de Desarrollo Social con #[[Mauricio Kuri González]]
+- Secretario de Desarrollo Social  en el [[Poder Ejecutivo de la Federación]] con [[Francisco Domínguez Servién]] durante el [[Sexenio 2015-2021]]
+- Secretario de Desarrollo Social en el [[Poder Ejecutivo del Estado de Querétaro]] con [[Mauricio Kuri González]] durante los primeros tres años del [[Sexenio 2021-2027]]
 - Senador de la República.

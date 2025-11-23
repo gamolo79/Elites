@@ -1,0 +1,3 @@
+- Gobernador emanado del [[PRI]] en el estado de Veracruz
+- Fundador del partido político [[Convergencia]], después denominado [[Movimiento Ciudadano]]
+-

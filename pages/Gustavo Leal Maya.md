@@ -1,0 +1,2 @@
+- Secretario de Finanzas con [[Mauricio Kuri González]] en el [[Ayuntamiento de Corregidora 2015-2018]]
+- Secretario de Finanzas en el [[Poder Ejecutivo del Estado de Querétaro]] con [[Mauricio Kuri González]] en el [[Sexenio 2021-2027]]

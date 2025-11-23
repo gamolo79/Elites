@@ -1,3 +1,3 @@
-- La familia se formó por el matrimonio de #[[Eduardo Tomás Nava Bolaños]] y #LiliaHernández
+- La familia se formó por el matrimonio de [[Eduardo Tomás Nava Bolaños]] y #LiliaHernández
 - Tuvieron cinco hijos Eduardo, José Arturo, Diego Uriel, Gabriela y Ana Laura.
 -

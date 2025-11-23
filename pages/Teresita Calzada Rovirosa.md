@@ -1,0 +1,2 @@
+- Diputada en la [[LXI Legislatura del Estado de Querétaro]] por [[Movimiento Ciudadano]]
+-
