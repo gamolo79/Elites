@@ -1,0 +1,2 @@
+- Fundador de [[Desarrollos Residenciales Turísticos]] junto con [[Víctor David Mena Aguilar]]
+-

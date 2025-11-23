@@ -1,0 +1,8 @@
+- Estudió la primaria en la #EscuelaGabrielaMistral entre 1985 y 1991
+- Estudió la secundaria y preparatoria en el #[[Colegio Fray Luis de León]]
+- Estudió la #[[Licenciatura en Derecho]] en la #[[Universidad Marista de Querétaro]]
+- Desde el año 2019 es la Directora de
+- Directora de Infraestructura Social.
+- Ha trabajado el #COPLADEM de la Secretaría de Desarrollo Social y Humano con #[[César Guerrero Mendoza]] durante el #[[Ayuntamiento de Querétaro 2021-2024]] , #[[Ernesto Mejía Botello]] en el #[[Ayuntamiento de Querétaro 2018-2021]] y #[[Juan Ignacio Calderón Guerrero]] en el #[[Ayuntamiento de Querétaro 2015-2018]]
+- Coordinadora de seguimiento con #[[Arturo Torres Gutiérrez]]
+-

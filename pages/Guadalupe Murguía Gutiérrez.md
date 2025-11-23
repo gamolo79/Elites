@@ -1,0 +1,6 @@
+- Diputada en la #[[LXIII Legislatura Federal]]
+- Presidenta de la Mesa Directiva de la Cámara de Diputados en la #[[LXIII Legislatura Federal]]
+- Secretaria de Gobierno en el #Sexenio1997-2003 y en el #[[Sexenio 2021-2027]]
+- Secretaria de Educación en el #[[Sexenio 2003-2009]]
+- Candidata al Senado de la República en fórmula con #[[Mauricio Kuri González]]
+- Senadora de la República del PAN en la #LXIVLegislaturaFederal

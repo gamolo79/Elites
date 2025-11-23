@@ -1,0 +1,7 @@
+- Candidato a la Gubernatura de Querétaro en 1991, cuando fue electo #[[Enrique Burgos García]] del PRI
+- Candidato al Senado de la República del PAN en 1994, contendió contra #[[Fernando Ortiz Arana]] del PRI y #[[Agustín López Guerra]] por el PRD.
+- Nació en Contepec, Michiacán el 15 de noviembre de 1941
+- Tomó protesta como senador del PAN por Querétaro el 01-09-1994
+- Su suplente era #[[Jesús Puga Tovar]]
+- Presidente estatal del PAN de 1989 a 1992.
+-

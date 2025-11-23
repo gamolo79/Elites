@@ -1,0 +1,2 @@
+- Titular de la Notaría No 49. Nombrado por el gobernador #[[Mauricio Kuri González]] en marzo de 2023.
+- Forma parte de la #[[Familia Botello Aranda]]

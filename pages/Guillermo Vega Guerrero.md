@@ -1,0 +1,5 @@
+- Diputado en la #[[LVII Legislatura del Estado de Querétaro]] en la que fue Coordinador del Grupo Parlamentario del PAN y Presidente de la Junta de Concertación Política
+- Presidente municipal en el #[[Ayuntamiento de San Juan del Río 2015-2018]] y en el #[[Ayuntamiento de San Juan del Río 2018-2021]]
+-
+-
+-

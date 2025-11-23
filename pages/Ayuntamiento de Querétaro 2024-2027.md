@@ -1,0 +1,29 @@
+- El Ayuntamiento de Querétaro es presidido por [[Felipe Fernando Macías Olvera]]
+- Son regidores en el Ayuntamiento: 
+  [[María Del Carmen Presa Ortega]]
+- Son funcionarios del gobierno municipal:
+- [[Miguel Ángel Torres Olguín]] - Coordinador de Oficina de Presidencia
+- [[José Luis Báez Guerrero]] - Jefe de Gabinete
+- [[Fernanda Tirado Esquer]] - Secretaria Particular
+- [[Jesús Roberto Franco González]] - Secretario del Ayuntamiento
+- [[Federico Guillermo de los Cobos y Vega]] - Secretario de Gobierno
+- [[Beatriz Guadalupe Marmolejo Rojas]] - Secretaria de Planeación y Participación Ciudadana
+- [[José Armando Presa Ortega]] - Secretario de Servicios Públicos
+- [[Francisco Villegas Solís]] - Secretario de Obras Públicas
+- [[Gerardo Romero Altamirano]] - Secretario de Desarrollo Urbano
+- [[María Guadalupe Espinosa de los Reyes]] - Secretaria de Medio Ambiente
+- [[Lennyz Meléndez Chacón]] - Secretaria de Bienestar Animal
+- [[Pedro Manuel Ángeles Luján]] - Secretario de Movilidad
+- [[Mariana Ortiz Cabrera]] - Secretaria de Turismo
+- [[Adriana Fuentes Cortés]] - Secretaria de Atención Ciudadana
+- [[Alejandro Sterling Sánchez]] - Secretario de Desarrollo Económico
+- [[Martha Daniela Salgado Márquez]] - Secretaria de Cultura
+- [[Juan Luis Ferrusca Ortiz]] - Secretario de Seguridad Pública
+- [[Juan José Ojeda Dorantes]] - Secretario de Desarrollo Social
+- [[Beatriz Magdalena León Sotelo]] - Secretaria de Gestión Delegacional
+- [[Clara Vanessa Garfias Rojas]] - Secretaria de la Mujer
+- [[Manuel Báez Bolaños]] - Secretario del Deporte
+- [[Gonzalo Álvarez Zerecero]] - Secretario de Innovación y Tecnología
+- [[Adrián González Chaparro]] - Secretario de Administración
+- [[Tania Paola Ruiz Castro]] - Directora del Sistema Municipal DIF
+-

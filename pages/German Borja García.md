@@ -1,0 +1,4 @@
+- Presidente Municipal de Corregidora en el #[[Ayuntamiento de Corregidora 2006-2009]]
+- Director del Instituto de Vivienda en el sexenio de #[[Francisco Domínguez Servién]]
+- Diputado en la #[[LVII Legislatura del Estado de Querétaro]]
+-

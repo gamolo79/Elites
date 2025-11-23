@@ -1,0 +1,3 @@
+- Regidor en el trienio de #[[Rolando García Ortiz]] 2000-2023
+- Delegado en Felipe Carrillo Puerto en el trienio de #[[Armando Alejandro Rivera Castillejos]]
+-

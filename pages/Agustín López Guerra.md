@@ -1,0 +1,3 @@
+- Candidato al Senado de la República en 1994 por el PRD. Contendió contra #[[Fernando Ortiz Arana]] y #[[Arturo Nava Bolaños]].
+- Profesor en en #CBTIS118
+-

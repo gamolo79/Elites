@@ -1,0 +1,2 @@
+- Fue presidente municipal de Querétaro en el Ayuntamiento de Querétaro en dos ocasiones. Una como interino en el periodo 1945-1946 y una segunda ocasión en el #[[Ayuntamiento de Querétaro 1949-1952]]
+-

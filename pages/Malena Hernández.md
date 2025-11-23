@@ -1,0 +1,2 @@
+- Casada con #[[Fernando Romero Vázquez]]
+-

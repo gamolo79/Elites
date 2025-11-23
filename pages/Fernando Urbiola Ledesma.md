@@ -1,0 +1,2 @@
+- Está casado con #[[Sara Bertha Jiménez Guillén]]
+-

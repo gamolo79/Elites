@@ -1,0 +1,3 @@
+- Infuencer de [[Reporte Querétaro]] con [[Luis Gabriel Osejo Domínguez]]
+- Hermana de [[José Armando Presa Ortega]]
+-

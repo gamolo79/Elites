@@ -1,0 +1,5 @@
+- Regidor #[[Armando Alejandro Rivera Castillejos]]
+- Regidor #[[Gerardo Gabriel Cuanalo Santos]]
+- Regidora #[[Guadalupe Murguía Gutiérrez]]
+- Regidora #[[María Alemán Muñoz Castillo]]
+-

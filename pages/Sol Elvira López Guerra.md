@@ -1,0 +1,3 @@
+- Sol Elvira López Guerra nació el 14 de noviembre de 1963
+- Estudió la #LicenciaturaenSociología en la #[[Escuela de Sociología]] de la #[[Universidad Autónoma de Querétaro]]
+-

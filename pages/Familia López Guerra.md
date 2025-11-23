@@ -1,0 +1,2 @@
+- #[[Agustín López y López]] se casó con #[[Elvira Guerra Martínez]] y formaron la familia López Guerra. Tuvieron 8 hijos: #[[Imelda López Guerra]] #AmadoLópezGuerra #[[Agustín López Guerra]] #[[Susana López Guerra]] #EduardoLópezGuerra #DavidLópezGuerra #[[Sol Elvira López Guerra]] y #[[Carlos Gabriel López Guerra]]
+-

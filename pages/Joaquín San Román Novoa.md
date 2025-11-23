@@ -1,0 +1,3 @@
+- Director de Radio y Televisión Querétaro en el sexenio de #[[Mauricio Kuri González]]
+- Periodista. Conductor radiofónico en Multimundo Radio, conductor del noticiario Para Continuar junto con #[[José Andrés Estévez Nieto]]
+-

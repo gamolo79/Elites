@@ -1,0 +1,3 @@
+- Diputada en la [[LX Legislatura del Estado de Querétaro]]
+- Diputada en la [[LIX Legislatura del Estado de Querétaro]]
+-

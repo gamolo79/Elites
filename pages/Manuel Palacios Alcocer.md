@@ -1,0 +1,4 @@
+- Falleció en un accidente aéreo junto a [[Juan Ignacio Torres Landa]] y [[José Oleszcovski Wassertell]] el [[07-06-2013]] -- https://www.excelsior.com.mx/nacional/2013/06/08/902997
+- Forma parte de la [[Familia Palacios Alcocer]]
+-
+-

@@ -1,0 +1,3 @@
+- Jefa de información en Multimundo Radio
+- Casada con Luis Prineda
+-

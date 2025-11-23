@@ -1,0 +1,3 @@
+- Escuela gestionada por los Agustinos Recoletos
+- Ofrece educación primaria, secundaria y preparatoria
+-

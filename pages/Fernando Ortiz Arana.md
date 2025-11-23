@@ -1,0 +1,2 @@
+- Senador de la República electo en 1994
+- Presidente Nacional del PRI en 1994 cuando fue asesinado #[[Luis Donaldo Colosio Murrieta]]

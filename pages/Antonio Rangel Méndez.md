@@ -1,0 +1,6 @@
+- Compañero de #[[Ricardo Anaya Cortés]] en el Instituto San Javier
+- Diputado local en la LVI y LVIII Legislatura
+- Notario Público
+- Secretario de Planeación con #[[Mauricio Kuri González]]
+- Secretario general del Partido Acción Nacional con #[[José Luis Báez Guerrero]]
+-

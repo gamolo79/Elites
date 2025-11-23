@@ -1,0 +1,5 @@
+- Simón Guerrero Contreras, padre de #[[César Guerrero Mendoza]], de #[[Fernando Guerrero Mendoza]], de #[[Maritere Guerrero Mendoza]]
+- Padre en la #[[Familia Guerrero Mendoza]]
+- Presidente del Comité Directivo del PAN de 1997 al 2000.
+- Diputado local en la [[LIII Legislatura del Estado de Querétaro]]
+-

@@ -1,0 +1,2 @@
+- Fue secretario general de la Sección 24 del [[Sindicato Nacional de Trabajadores de la Educación]]
+-

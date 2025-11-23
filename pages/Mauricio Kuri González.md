@@ -1,0 +1,6 @@
+- Titular del #[[Poder Ejecutivo del Estado de Querétaro]] en el #[[Sexenio 2021-2027]].
+- Presidente Municipal de Corregidora 2015-2018. Asumió el cargo el día [[01-10-2015]].
+- Senador de la República para el periodo 2018-2024
+- Compañero en el senado de #[[Miguel Angel Osorio Chong]] y #[[Miguel Angel Mancera]]
+- Forma parte de la #[[Familia Kuri González]]
+-

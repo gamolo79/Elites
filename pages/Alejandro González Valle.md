@@ -1,0 +1,2 @@
+- Secretario de Servicios Públicos Municipales con [[Armando Alejandro Rivera Castillejos]] en el Trienio [[Ayuntamiento de Querétaro 2003-2006]]
+- Secretario de Servicios Públicos Municipales con [[Manuel González Valle]] en el trienio [[Ayuntamiento de Querétaro 2006-2009]]

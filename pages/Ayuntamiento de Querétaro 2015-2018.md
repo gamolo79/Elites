@@ -1,0 +1,2 @@
+- #[[Marcos Aguilar Vega]] fue presidente municipal del Ayuntamiento de Querétaro 20115-2018.
+-

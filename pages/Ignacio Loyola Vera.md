@@ -1,0 +1,3 @@
+- Primer gobernador panista de Querétaro en el #Sexenio1997-2003 tras ganar la elección a #[[Fernando Ortiz Arana]] del #PRI
+- Titular del #[[Poder Ejecutivo del Estado de Querétaro]] en el #Sexenio1997-2003
+-

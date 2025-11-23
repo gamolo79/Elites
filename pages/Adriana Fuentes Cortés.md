@@ -1,0 +1,4 @@
+- Regidora en el #[[Ayuntamiento de Querétaro 2003-2006]]
+- Regidora en el #[[Ayuntamiento de Querétaro 2021-2024]]
+-
+-

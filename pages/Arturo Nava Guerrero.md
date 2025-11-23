@@ -1,0 +1,3 @@
+- Arturo Nava Guerrero fue director del ISP Intermex.
+- Arturo Nava Guerrero fue socio de #[[Darío Morales López]]
+-

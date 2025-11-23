@@ -1,0 +1,2 @@
+- #[[Manuel González Valle]] fue presidente municipal en el Ayuntamiento de Querétaro 2006-2009
+-

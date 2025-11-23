@@ -1,0 +1,5 @@
+- Gobernador del Estado de Querétaro
+- Nació el 21 de abril de 1899. [[21-04-1899]]
+- Falleció el 30 de abril de 1976. [[30-04-1976]]
+-
+-

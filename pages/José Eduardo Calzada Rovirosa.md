@@ -1,0 +1,3 @@
+- Senador de la República
+- Titular del #[[Poder Ejecutivo del Estado de Querétaro]] en el #[[Sexenio 2009-2015]]
+-

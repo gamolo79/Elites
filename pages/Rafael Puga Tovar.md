@@ -1,0 +1,4 @@
+- Rafael Puga Tovar fue presidente estatal del PAN en Querétaro del 2004 al 2007.
+- Casado con #[[Cristina Morales Domínguez]]
+- Diputado en la #[[LV Legislatura del Estado de Querétaro]]
+-

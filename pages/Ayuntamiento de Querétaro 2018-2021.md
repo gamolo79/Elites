@@ -1,0 +1,4 @@
+- Regidora #[[Concepción Reséndiz]]
+- Síndico #[[Miguel Parrodi Espinosa]]
+- Regidor Independiente #[[Luis Gabriel Osejo Domínguez]]
+- S

@@ -1,0 +1,1 @@
+- Partido Acción Nacional fundado por Manuel Gómez Morín en 1939

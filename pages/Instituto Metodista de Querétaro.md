@@ -1,0 +1,5 @@
+- Instituto fundado por la Iglesia Metodista de México. Se transformó en el #[[Instituto Militarizado Benjamin N Velasco]]
+- En 1890 fue adquirido el edificio situado en la calle San Antonio No.5, que después fue la Av. Hidalgo No. 34.
+- Para el año 1908 tenía una matrícula de 92 alumnos, todos en la modalidad de internado.
+- El 19 de noviembre de 1914, durante el periodo vacacional, el Instituto fue asaltado e incendiad por una turba de fanáticos, lo cual dejó la casa semidestruida.
+-

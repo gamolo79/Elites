@@ -1,0 +1,2 @@
+- Titular del #[[Poder Ejecutivo del Estado de Querétaro]] en el #Sexenio1991-1997
+-

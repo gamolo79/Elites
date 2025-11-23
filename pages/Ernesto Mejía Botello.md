@@ -1,0 +1,3 @@
+- Coordinador de #COPLADEM durante el #[[Ayuntamiento de Querétaro 2018-2021]]
+- Subsecretario de Desarrollo Comunitario y Regulación en la Secretaría de Desarrollo Social de Querétaro, con #[[Agustín Dorantes Lámbarri]] durante el #[[Sexenio 2021-2027]]
+-

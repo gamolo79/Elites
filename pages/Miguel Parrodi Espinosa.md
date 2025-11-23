@@ -1,0 +1,4 @@
+- Síndico en el #[[Ayuntamiento de Querétaro 2018-2021]]
+- Jefe de Gabinete en el segundo trienio de #[[Luis Bernardo Nava Guerrero]] como presidente municipal de Querétaro.
+- Presidente municipal interino en el #[[Ayuntamiento de Querétaro 2018-2021]] durante los meses de la licencia de #[[Luis Bernardo Nava Guerrero]] por el proceso electoral.
+-

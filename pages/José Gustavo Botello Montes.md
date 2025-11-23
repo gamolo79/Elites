@@ -1,0 +1,3 @@
+- Director del IMPLAN en el [[Ayuntamiento de Querétaro 2018-2021]]
+- Suplente del diputado federal #[[Apolinar Casillas Gutiérrez]] en la [[LXIII Legislatura Federal]]
+-

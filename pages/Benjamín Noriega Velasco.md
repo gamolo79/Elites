@@ -1,0 +1,8 @@
+- Profesor y político liberal originario de Oaxaca.
+- Dirigió desde 1895 y durante 20 años el #[[Instituto Metodista de Querétaro]] antecedente del #[[Instituto Militarizado Benjamin N Velasco]]
+- Fue dirigente del Grupo Liberal Queretano y entregó una condecoración a #VenustianoCarranza, primer jefe del Ejército Constitucionalista.
+- Estuvo casado con doña #[[Carlota Orozco]], originaria de Tezontepec, Hidalgo.
+- En 1915, estando Veracruz, formó parte de un grupo de 100 maestros constitucionalistas. #VenustianoCarranza le encomendó realizar un viaje a los Estados Unidos para observar el funcionamiento de las escuelas normales de aquel país. Estuvieron en Nashville, Chicago y Nueva York.
+- Falleció en diciembre de 1916 en la capital del país. Sus restos descansan en el panteón Francés.
+- Su sucesor como director del #[[Instituto Metodista de Querétaro]] fue el Dr. #VictorianoDBáez, quien se dedicó a restaurar el edificio y en 1918 le dio el nombre de D. Benjamín al Instituto.
+-

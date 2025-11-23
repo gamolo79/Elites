@@ -1,0 +1,3 @@
+- Coordinadora de Comunicación Social con #[[Francisco Domínguez Servién]] en el municipio de Querétaro (2009-2012) y en el Gobierno del Estado de Querétaro (2015-2021)
+- Diputada en la LX Legislatura de Querétaro
+-

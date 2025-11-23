@@ -1,0 +1,3 @@
+- Empresa del ramo inmobiliario fundada en 1993 por [[José Oleszcovski Wassertell]] y [[Víctor David Mena Aguilar]]
+- Grupo DRT: https://drt.com.mx/
+-

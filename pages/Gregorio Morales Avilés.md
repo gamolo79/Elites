@@ -1,0 +1,4 @@
+- Padre en la #[[Familia Morales López]]
+- Autor del libro "Eduardo Loarca Castillo. Un enamorado de Querétaro”. https://noticiasdequeretaro.com.mx/2022/12/16/presentan-eduardo-loarca-castillo-un-enamorado-de-queretaro/
+- Autor del libro "Estados Unidos y el Fondo Monetario Internacional".
+-

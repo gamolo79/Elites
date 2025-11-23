@@ -1,0 +1,3 @@
+- Hermano de #[[Ignacio Loyola Vera]]
+- Trabajó como Secretario de Gobierno en el sexenio de #[[José Eduardo Calzada Rovirosa]]
+-

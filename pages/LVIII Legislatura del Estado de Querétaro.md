@@ -1,0 +1,25 @@
+- #[[Daesy Alvorada Hinojosa Rosas]] Alvorada Hinojosa Rosas
+- #[[María Alemán Muñoz Castillo]]
+-
+- Eric Salas González
+- Luis Gerardo Ángeles Herrera
+- Juan Luis Íñiguez Hernández
+- Antonio Zapata Guerrero
+- Verónica Hernández Flores
+- Roberto Carlos Cabrera Valencia
+- José González Ruiz
+- Héctor Iván Magaña Rentería
+- Aydé Espinoza González
+- María Antonieta Puebla Vega
+- Leticia Rubio Montes
+- Atali Sofía Rangel Ortíz
+- María Isabel Aguilar Morales
+- J. Jesús Llamas Contreras
+- Norma Mejía Lira
+- Carlos Manuel Vega de la Isla
+- Leticia Araceli Mercado Herrera
+- Mauricio Ortiz Proal
+- Luis Antonio Rangel Méndez
+- Carlos Lázaro Sánchez Tapia
+- Yolanda Josefina Rodríguez Otero
+- Herlinda Vázquez Munguía

@@ -1,0 +1,2 @@
+- Presidente de PAN en Querétaro de 1966 a 1979.
+- Fue el primer diputado local del PAN. Formó parte la #[[XLVII Legislatura del Estado de Querétaro]]

@@ -1,0 +1,1 @@
+- Imelda López Hernández fue egresada de la Normal de Puebla, especializada en Matemáticas, docente en el #[[Instituto Militarizado Benjamin N Velasco]]

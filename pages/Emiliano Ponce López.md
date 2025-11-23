@@ -1,0 +1,3 @@
+- Nació el 8 de septiembre de 1995.
+- Tiene una relación de noviazgo con #[[Catalina Vega González]]
+-

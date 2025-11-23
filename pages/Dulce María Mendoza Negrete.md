@@ -1,0 +1,3 @@
+- Madre de #[[César Guerrero Mendoza]] #[[Maritere Guerrero Mendoza]] y #[[Fernando Guerrero Mendoza]]
+- Esposa de #[[Simón Guerrero Contreras]]
+-

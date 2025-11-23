@@ -1,0 +1,4 @@
+- #[[Gregorio Morales Avilés]] se casó con #[[Imelda López Guerra]] el 24 de febrero de 1973
+- Del matrimonio nació #[[Darío Morales López]] el 31 de enero de 1975 y #[[Gabriel Morales López]] el 22 de mayo de 1979.
+-
+-

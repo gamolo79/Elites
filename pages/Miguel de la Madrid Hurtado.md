@@ -1,0 +1,2 @@
+- Presidente de México de 1982 a 1988
+-

@@ -1,0 +1,18 @@
+- Regidora #[[Concepción Reséndiz]]
+- Síndica #[[Juliana Rosario Hernández Quintanar]]
+- Síndico #[[Miguel Ángel Torres Olguín]]
+- Regidora #[[María Del Carmen Presa Ortega]]
+- Regidora #[[Adriana Fuentes Cortés]]
+- Regidor #IsaacJiménezHerrera
+- Regidora #FátimaYadiraMontesFraire
+- Regidor #[[José Luis Aguilera Rico]]
+- Regidor #CarlosHabacucRuizUvalle
+- Regidora #MarthaFabiolaLarrondoMontes
+- Regidor #JoséArturoGonzálezCórdoba
+- Regidora #IvonneOlascoagaCorrea
+- Regidor #JoséManuelSánchezNieto
+- Regidora #[[María Alemán Muñoz Castillo]]
+- Regidor #MarcoÁlvarezMalo
+- El Ayuntamiento de Querétaro 2021-2024 se instaló el [[01-10-2021]]
+- El Ayuntamiento de Querétaro concluyó el [[30-09-2024]]
+-

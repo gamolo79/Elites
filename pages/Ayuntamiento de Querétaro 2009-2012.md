@@ -1,0 +1,6 @@
+- El Ayuntamiento de Querétaro 2009-2012 comenzó el #01-10-2009 y concluyó el #30-09-2012
+- Fue presidido por [[Francisco Domínguez Servién]]
+- Su gabinete municipal estuvo integrado por: 
+   [[Luis Bernardo Nava Guerrero]] - secretario de Gobierno
+  [[Apolinar Casillas Gutiérrez]] -  secretario del Ayuntamiento
+-

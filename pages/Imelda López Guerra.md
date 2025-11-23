@@ -1,0 +1,4 @@
+- Mamá en #[[Familia Morales López]]
+- Hija en la #[[Familia López Guerra]]
+- Estudió la Licenciatura en Psicología en la #[[Facultad de Psicología]] de la #[[Universidad Autónoma de Querétaro]]
+-

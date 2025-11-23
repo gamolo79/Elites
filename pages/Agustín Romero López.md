@@ -1,0 +1,7 @@
+- Nació en 1890.
+- Fue un maestro, licenciado en derecho, médico homeópata y pastor metodista.
+- Fue director del #[[Instituto Militarizado Benjamin N Velasco]] desde 1925 a 1972.
+- Obtuvo el grado de #VenerableGranMaestroGrado33 , el máximo logro en las logias masónicas.
+- Formó la familia #[[Familia López y López]]
+- Estudió la primaria en el #[[Instituto Metodista de Querétaro]] donde fue alumno de #[[Benjamín Noriega Velasco]] . Concluyó la educación primaria en 1904.
+- Fue nombrado director de la Escuela Normal del Estado por el gobernador #SaturninoOsornio

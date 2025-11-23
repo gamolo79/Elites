@@ -1,0 +1,2 @@
+- Actriz egresada de la #[[Facultad de BellasArtes]] de la #[[Universidad Autónoma de Querétaro]]
+-

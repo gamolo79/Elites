@@ -1,0 +1,5 @@
+- Fue secretario de Turismo en #[[Sexenio 2003-2009]]
+- Compitió por la gubernatura de Querétaro contra #[[José Eduardo Calzada Rovirosa]] en el año 2009.
+- Fue presidente municipal de Querétaro en el #[[Ayuntamiento de Querétaro 2006-2009]]
+- Hermano de [[Alejandro González Valle]], quien fue su secretario de Servicios Públicos Municipales en el [[Ayuntamiento de Querétaro 2006-2009]]
+-

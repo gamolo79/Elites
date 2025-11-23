@@ -1,0 +1,2 @@
+- La familia López Romero o Romero López se forma con la unión de #AmadoLópez y #MáximaRomero, Su hijo fue #[[Agustín Romero López]]
+-

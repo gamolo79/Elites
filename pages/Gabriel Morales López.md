@@ -1,0 +1,13 @@
+- Nació en Querétaro el 22 de mayo de 1979, hijo en la familia #[[Familia Morales López]]
+- Cursó la primaria en la #EscuelaGabrielaMistral entre 1985 y 1991 donde conoció a #[[Violeta Fabiola Barbosa Villanueva]]
+- Cursó la secundaria en el #ColegioNuevoContinente entre 1991 y 1994
+- Cursó el Bachillerato Bilingüe en el #ITESM-CQ entre 1994 y 1997
+- Cursó la Licenciatura en Periodismo y Comunicación en la #[[Facultad de Ciencias Políticas y Sociales]] de la #[[Universidad Autónoma de Querétaro]]
+- Ha sido profesor en la #[[Facultad de Ciencias Políticas y Sociales]] desde 2007 en la Licenciatura en Comunicación y Periodismo y la #[[Especialidad en Comunicación Política]]
+- El 24 de enero de 2009 formó la #[[Familia Morales Barbosa]]
+- Trabajó con #[[Enrique Antonio Correa Sada]] #[[Beatriz Guadalupe Marmolejo Rojas]] y #[[Jorge Arturo Lomelí Noriega]] en la #[[LVII Legislatura del Estado de Querétaro]]
+- Trabajó con #[[Gerardo Gabriel Cuanalo Santos]] en la #[[LXIII Legislatura Federal]]
+- Reportero en Multimundo Radio bajo las órdenes de #[[Lea Remis LeFaure]] en la Jefatura de Información y #[[José Andrés Estévez Nieto]] en la conducción del noticiairo "ParaContinuar".
+- Conductor y jefe de información del noticiario Coup D'Etat junto con #[[Malena Hernández]]
+- Fue productor, Junto con #[[Carlos Alberto Alcaraz Gutiérrez]] del noticiairo matutino "Traigo Noticias
+-

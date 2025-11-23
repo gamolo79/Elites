@@ -1,0 +1,2 @@
+- Diputado en la #[[LVII Legislatura del Estado de Querétaro]] .
+- Candidato a diputado federal por el Distrito 03 en 2018, perdió contra #[[Beatriz Robles]] de MORENA.

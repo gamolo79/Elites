@@ -1,0 +1,3 @@
+- Director del sitio web [[Ciudad y Poder]] (https://ciudadypoder.mex)y [[Reporte Querétaro]]
+- Regidor en el [[Ayuntamiento de Querétaro 2018-2021]]
+-

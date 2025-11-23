@@ -1,0 +1,3 @@
+- #[[Humberto Palacios Alcocer]] contrajo matrimonio con #[[Martha Beatriz Kuri González]]
+- Sus hijos son #[[Humberto Palacios Kuri]] y #[[Tania Palacios Kuri]]
+-

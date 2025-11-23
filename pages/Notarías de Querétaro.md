@@ -1,0 +1,7 @@
+- [[Notaría 1]] - Notario [[Roberto Reyes Olvera]]
+- [[Notaría 2]] - Notario [[Francisco Pérez Rojas]]
+- [[Notaría 3]] - Notario [[Álvaro Guerrero Alcocer]]
+- [[Notaría 4]] - Notario [[Jorge Maldonado Guerrero]]
+- [[Notaría 5]] - Notario [[Luis Felipe Ordaz González]]
+- [[Notaría 6]] - Notario [[Rodrigo Díaz Castañares]]
+-

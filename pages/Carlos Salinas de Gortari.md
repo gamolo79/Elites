@@ -1,0 +1,3 @@
+- Presidente de México entre 1988 y 1994
+- Secretario de Programación y Presupuesto con #[[Miguel de la Madrid Hurtado]]
+-

@@ -1,0 +1,2 @@
+- Periodista. Conductor radiofónico en Multimundo Radio, conductor del noticiario Para Continuar junto con #[[Joaquín San Román Novoa]]
+-

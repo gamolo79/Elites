@@ -1,0 +1,2 @@
+- [[Juan Botello Orta]] se casó con [[María de los Angeles Montes Hernández]] un 14 de octubre de 1964, en la parroquia de Santiago. Fruto de la unión nacieron ocho hijos:  [[José Alfredo Botello Montes]], [[José Gustavo Botello Montes]] #[[Juan Botello Montes]] #[[Enrique Botello Montes]]
+-

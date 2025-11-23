@@ -1,0 +1,2 @@
+- #[[Sol Elvira López Guerra]] contrajo matrimonio con #[[Juan Carlos Ponce Diez Marina]] y tuvieron un hijo: #[[Emiliano Ponce López]]
+-

@@ -1,0 +1,3 @@
+- Secretario de Servicios Públicos en el [[Ayuntamiento de Querétaro 2024-2027]]
+- Hermano de [[María Del Carmen Presa Ortega]]
+-

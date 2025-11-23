@@ -1,0 +1,4 @@
+- Presidente Nacional del PRI
+- Candidato a la presidencia de la República en 1994, asesinado en Lomas Taurinas, Tijuana, el 23 de marzo.
+- Fue secretario de Desarrollo Social con #[[Carlos Salinas de Gortari]]
+-

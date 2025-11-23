@@ -1,0 +1,4 @@
+- Maestra en el #[[Instituto Militarizado Benjamin N Velasco]]
+- Hija en la familia #GuerraMartínez
+- Falleció el 21 de mayo de 1982
+-

@@ -1,0 +1,6 @@
+- #[[Gabriel Morales López]] y #[[Violeta Fabiola Barbosa Villanueva]] se conocieron en la primaria Gabriela Mistral.
+- Se hicieron novios el 3 de noviembre de 2007.
+- Contrajeron matrimonio el 24 de enero de 2009 en el hotel Misión La Muralla
+- El 9 de abril de 2011 nació #[[Leonardo Morales Barbosa]]
+- El 17 de enero de 2015 nació #[[Aranza Morales Barbosa]]
+-

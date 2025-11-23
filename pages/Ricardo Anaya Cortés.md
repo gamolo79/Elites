@@ -1,0 +1,6 @@
+- Secretario Particular en el #[[Sexenio 2003-2009]]
+- Diputado local en la #[[LVI Legislatura del Estado de Querétaro]]
+- Diputado Federal en la [[LXII Legislatura Federal]]
+- Candidato a la presidencia de la República por PAN y PRD en 2018; contendió contra [[Andrés Manuel LópezObrador]]
+-
+-

@@ -1,0 +1,3 @@
+- Coordinador de campaña de [[Gerardo Gabriel Cuanalo Santos]] para la diputación federal del Distrito 03 en 2015.
+- Jefe de oficina del diputado federal [[Gerardo Gabriel Cuanalo Santos]] en la [[LXIILegislaturaFederal]]
+-

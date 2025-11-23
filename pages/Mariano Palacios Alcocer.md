@@ -1,0 +1,4 @@
+- Gobernador de Querétaro. Titular del #[[Poder Ejecutivo del Estado de Querétaro]] en el #[[Sexenio 1985-1991]]
+- Presidente municipal en el #[[Ayuntamiento de Querétaro 1976-1979]]
+- Mariano Palacios Alcocer contrajo matrimonio con  [[Ana María González]] y formó la [[Familia Palacios González]]
+-

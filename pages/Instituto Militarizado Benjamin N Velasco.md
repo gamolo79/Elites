@@ -1,0 +1,5 @@
+- El Instituto Militarizado Benjamín N. Velasco tiene sus orígenes en el Instituto Metodista fundado en Querétaro en 1890. En ese año se adquirió el edificio de la calle San Antonio No. 5, despues Avenida Hidalgo 34.
+- El Dr. Samuel W. Siberts fue el único misionero en la historia del instituto. En ese año le entregó la dirección a #[[Benjamín Noriega Velasco]].
+- El 27 de agosto de 1940, con la visita del presidente #[[Lázaro Cárdenas DelRío]], se inició la militarización del Instituto.
+- Al ser una escuela militarizada, recibió una dotación de armas y nombramiento de instructores de la Secretaría de la Defensa Nacional. Con ello los alumnos tenían la oportunidad de recibir s cartilla, entregada por los comandantes en turno de la XVII Zona Militar a la vez que terminaban su secundaria y/o curso comercial.
+-

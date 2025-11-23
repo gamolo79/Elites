@@ -1,0 +1,2 @@
+- [[Juan Aranda]] y MargaritaÁlvarez formaron la familia Aranda Álvarez, entre sus hijas están [[Carolina Aranda Álvarez]] y [[Bertha Aranda Álvarez]]
+-

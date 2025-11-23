@@ -1,0 +1,10 @@
+- [[LIII Legislatura del Estado de Querétaro]]  del 2000 al 2003
+- [[LIV Legislatura del Estado de Querétaro]] del 2003 al 2009
+- [[LV Legislatura del Estado de Querétaro]]  del 2006 al 2009
+- [[LVI Legislatura del Estado de Querétaro]]  del 2009 al 2012
+- [[LVII Legislatura del Estado de Querétaro]] del 2012 al 2015
+- [[LVIII Legislatura del Estado de Querétaro]]  del 2015 al 2018
+- [[LIX Legislatura del Estado de Querétaro]]  del 2018 al 2021
+- [[LX Legislatura del Estado de Querétaro]]  del 2021 al 2024
+- [[LXI Legislatura del Estado de Querétaro]] del 2024 al 2027
+-

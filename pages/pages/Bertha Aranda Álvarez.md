@@ -1,0 +1,3 @@
+- Está casada con [[Apolinar Casillas Gutiérrez]]
+- Es hermana de [[Carolina Aranda Álvarez]]
+-

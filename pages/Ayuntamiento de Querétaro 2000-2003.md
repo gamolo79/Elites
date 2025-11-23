@@ -1,0 +1,4 @@
+- Presidente municipal: #[[Rolando García Ortiz]]
+- Síndico #[[Joaquín Gerardo González de León]]
+- Síndico #[[Pablo Meré Alcocer]]
+-

@@ -1,0 +1,2 @@
+- El Dr. Jaime Palacios Alcocer se recibió en la UNAM como Médico Cirujano Oftalmólogo. Fuente: https://www.oftalmologia-integral.com.mx/
+-

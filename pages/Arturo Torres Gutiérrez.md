@@ -1,0 +1,2 @@
+- Secretario de Desarrollo Social y Humano en los dos periodos de #[[Luis Bernardo Nava Guerrero]] como presidente Municipal de Querétaro 2018-2021 y 2021-2024.
+-

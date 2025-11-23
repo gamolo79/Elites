@@ -1,0 +1,4 @@
+- La #[[Escuela de Sociología]] de la #[[Universidad Autónoma de Querétaro]] se transformó en la Facultad de Ciencias Políticas y Sociales en 1997.
+- En el año de 1997 abrió dos nuevas licenciaturas: #LicenciaturaenCienciasPolíticasyAdministraciónPública y la #LicenciaturaenPeriodismoyComunicación
+- La Dra. #MartaGloriaMoralesGarza fue la primera directora ya en calidad de Facultad
+-

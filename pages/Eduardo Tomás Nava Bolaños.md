@@ -1,0 +1,6 @@
+- Pertenece a la familia #[[Familia Nava Bolaños]]
+- Fue Senador de la República de 2006 a 2012.
+- Era apodado "El Trapo".
+- Nació en Contepec, Michoacán, el 21 de diciembre de 1952.
+- Formó la #[[Familia Nava Hernández]]
+-

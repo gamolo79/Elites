@@ -1,0 +1,4 @@
+- Humberto Palacios Kuri es titular de la [[Notaría 65]] de Querétaro.
+- Es hermano de [[Tania Palacios Kuri]]
+- Humberto Palacios Kuri se casó con [[Silvia Elena Díaz de León Lomelín]] por el civil en octubre de 2020
+-

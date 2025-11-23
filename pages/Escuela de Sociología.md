@@ -1,0 +1,3 @@
+- La Escuela de Sociología es el antecedente de la #[[Facultad de Ciencias Políticas y Sociales]] en la #[[Universidad Autónoma de Querétaro]]
+- Fue fundada por el Dr. #[[Carlos Dorantes González]]
+-

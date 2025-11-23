@@ -1,0 +1,2 @@
+- Coordinador de Comunicación Social en los dos trienios de #[[Luis Bernardo Nava Guerrero]] como presidente municipal de Querétaro
+- Periodista en Televisa Querétaro y Códice Informativo

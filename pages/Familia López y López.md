@@ -1,0 +1,4 @@
+- La familia López y López se formó con el matrimonio de #[[Agustín Romero López]] e #[[Imelda López Hernández]]
+- Tuvieron cuatro hijos #[[Amado López y López]] #[[Susana López y López]] #[[Agustín López y López]] y #[[Adolfo López y López]]
+-
+-
