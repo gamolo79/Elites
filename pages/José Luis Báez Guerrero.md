@@ -1,3 +1,3 @@
-- Diputado Federal en la #[[LXV LegislaturaFederal]]
-- Jefe de Gabinete en el primer trienio de #[[Roberto Sosa Pichardo]]
--
+- Diputado Federal en la [[LXV LegislaturaFederal]]
+- Jefe de Gabinete en el primer trienio de [[Roberto Sosa Pichardo]]
+- Casado con [[Estrella Rojas Loreto]]

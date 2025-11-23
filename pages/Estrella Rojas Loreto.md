@@ -1,2 +1,6 @@
-- Senadora, suplente de #[[Guadalupe Murguía Gutiérrez]]
-- Casada con #[[José Luis Báez Guerrero]]
+- Senadora, suplente de [[Guadalupe Murguía Gutiérrez]]
+- Casada con [[José Luis Báez Guerrero]]
+- Hija de [[Benjamín Rojas Fonseca]]
+- Forma parte de la [[Familia Rojas Loreto]]
+- Delegada del Centro Histórico en el [[Ayuntamiento de Querétaro 2024-2027]]
+-

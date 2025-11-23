@@ -1,0 +1,6 @@
+- La especialidad en Comunicación Política se imparte en la #[[Facultad de Ciencias Políticas y Sociales]] de la #[[Universidad Autónoma de Querétaro]]
+- #[[Dante Aguilar Calvo]] cursó la especialidad en Comunicación Política en el año 2019
+- #JuanJoséArreoladeDios cursó la especialidad en Comunicación Política en el año 2019
+- #[[Estela Valenzuela]] cursó la especialidad en Comunicación Política en el año 2019.
+-
+-

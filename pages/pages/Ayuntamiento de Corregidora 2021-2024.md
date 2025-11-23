@@ -1,0 +1,2 @@
+- El presidente municipal en el Ayuntamiento de Corregidora 2021-2024 fue [[Roberto Sosa Pichardo]]
+-

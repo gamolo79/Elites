@@ -1,0 +1,1 @@
+- Fue secretario de Administración en el [[Ayuntamiento de Corregidora 2021-2024]]

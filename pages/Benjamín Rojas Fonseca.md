@@ -1,3 +1,4 @@
-- Regidor en el trienio de #[[Rolando García Ortiz]] 2000-2023
-- Delegado en Felipe Carrillo Puerto en el trienio de #[[Armando Alejandro Rivera Castillejos]]
+- Regidor del [[PAN]] en el trienio de #[[Rolando García Ortiz]] en el [[Ayuntamiento de Querétaro 2000-2003]]
+- Delegado en Felipe Carrillo Puerto cuando [[Armando Alejandro Rivera Castillejos]] presidía el [[Ayuntamiento de Querétaro 2003-2006]]
+-
 -

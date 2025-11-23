@@ -1,5 +1,5 @@
 - Diputada en la LVII Legislatura de Querétaro
-- Sobrina de #[[Benjamín Rojas Fonseca]]
+- Sobrina de [[Benjamín Rojas Fonseca]]
 - Delegada Municipal de Santa Rosa Jáuregui, 2010-2012. Trienio de #[[Francisco Domínguez Servién]]
 - Diputada Local en la LVII Legislatura del Estado de Querétaro.
 - Secretaria de Desarrollo Humano y Social del Municipio de Querétaro, 2015-2018. Trienio de #[[Marcos Aguilar Vega]]
